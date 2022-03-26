@@ -1,2 +1,1 @@
-# JeeHee Brenda BAEK's PortFolio
-
+# JeeHee Brenda BAEK's PortFolio Page
