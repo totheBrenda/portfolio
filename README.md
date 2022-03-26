@@ -1,1 +1,2 @@
-# portfolio
+# JeeHee Brenda BAEK's PortFolio
+
